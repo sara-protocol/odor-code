@@ -1,3 +1,4 @@
+![Uploading image.png…]()
 # 气味密码 Odor Code — 未来人类生活质量的重要一环
 
 > **From Olfactory Science to Smart Toilets: How Odor Monitoring Becomes Essential Infrastructure for Quality of Life**
